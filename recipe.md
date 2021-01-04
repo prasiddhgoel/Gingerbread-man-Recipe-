@@ -1,0 +1,4 @@
+
+Cream butter and brown sugar until light and fluffy. Beat in molasses, egg and water. In another bowl, whisk together remaining ingredients minus frosting; gradually beat into creamed mixture. Divide dough in half. Shape each into a disk; cover. Refrigerate until easy to handle, about 30 minutes.
+Preheat oven to 350°. On a lightly floured surface, roll each portion of dough to 1/8-in. thickness. Cut with a floured 4-in. gingerbread man cookie cutter. Place 2 in. apart on greased baking sheets.
+Bake until edges are firm, 8-10 minutes. Remove to wire racks to cool completely. Frost as desired.
